@@ -1,2 +1,2 @@
 # ggwppedang88VIP
-Membuat akun vvip saat ini juga , akses untuk member 
+Membuat akun vvip saat ini juga , akses menuju keuntungan terbesar
